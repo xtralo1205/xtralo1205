@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @xtralo1205
-- 👀 I’m interested in Coding & Hacking
+- 👀 I’m interested in Coding, Hacking & Gaming
 - 🌱 I’m currently learning both of the above
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Discord:xtralo#0001 or E-mail:xtralo.1205@gmail.com
